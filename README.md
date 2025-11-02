@@ -43,7 +43,7 @@
 <img width="393" height="35" alt="image" src="https://github.com/user-attachments/assets/9b449d72-ede4-4758-8e23-552a369101f8" /> 🐇
 
 <img width="523" height="369" alt="image" src="https://github.com/user-attachments/assets/5b7a1a23-1411-45b7-8fca-32af344b7c7d" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d683c681-b9fb-4615-bd04-d9728b813073" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/ea154eda-9a25-4089-a3a6-2fedb05d031e" /> <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/7ec8905b-0a85-422a-ad7d-29c9f9cde645" /> <img width="90" height="18" alt="image" src="https://github.com/user-attachments/assets/5e47e4a1-c685-4b75-8cab-836f3acd6e58" /> <img width="68" height="19" alt="image" src="https://github.com/user-attachments/assets/de82fb21-f3a5-4ac6-9799-faa65db215fd" />
-<img width="200" height="163" alt="image" src="https://github.com/user-attachments/assets/4de6621e-6e80-4827-a772-65f799433918" /> "there really is no point getting your hopes up trying to chase and get someone back when they're already long gone, mate."
+<img width="200" height="163" alt="image" src="https://github.com/user-attachments/assets/4de6621e-6e80-4827-a772-65f799433918" /> "There really is no point getting your hopes up trying to chase and get someone back when they're already long gone, mate."
 
 
 
