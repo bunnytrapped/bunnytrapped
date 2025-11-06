@@ -15,7 +15,7 @@
 " don't you hate me? " ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/c4edcb32-bd56-4dc3-9796-91b02373fa5d" />‧₊˚♪ 𝄞₊˚⊹⭑𓂃𓂃𓂃𓂃𓂃𓂃
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/08405856-c72c-4a64-b4e1-fb97cfd0fcbb" />𓂃𓂃𓂃𓂃𓂃𓂃 " don't be afraid, hold my hand, mademoiselle. " <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/dff51cdc-0f7b-4d34-b52f-da75074ed913" />
 <img width="21" height="12" alt="image" src="https://github.com/user-attachments/assets/3f9dabc5-edda-44e3-922e-44520d663b00" /> <img width="100" height="13" alt="image" src="https://github.com/user-attachments/assets/78a3081b-d141-4a3b-8b80-1e386c2bc28c" /> <img width="21" height="12" alt="image" src="https://github.com/user-attachments/assets/838c003a-2d16-4ac6-bd78-7c5e72972396" />
-<img width="100" height="250" alt="image" src="https://github.com/user-attachments/assets/e6ccef23-a86d-4531-ab3d-0ec7029ad414" /> HEY !! I'm isaac, or you can call me jake or.. i don't know anything you want LOL I don't really have a problem of what you call me unless it's weird, nor the gender you precieve me as, but i still have my own personal boundaries so..lay it off a little if you could ;p ⊹ . 𓃹. ݁ ⊹ . ݁˖
+<img width="100" height="250" alt="image" src="https://github.com/user-attachments/assets/e6ccef23-a86d-4531-ab3d-0ec7029ad414" /> HEY !! I'm isaac, or you can call me jake or.. i don't know anything you want LOL I don't really have a problem of what you call me unless it's weird, nor the gender you precieve me as, but i still have my own personal boundaries so..lay it off a little if you could.. finger guns and a wink ⊹ . 𓃹. ݁ ⊹ . ݁˖
 ⌒◡<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c00e2735-3a13-4db2-9b16-d56698a8a37d" />◡⌒ 🐰⸝꙳.˖ <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/d0034c45-0306-406e-ac08-b07995cc4a94" />𝜗𝜚⋆ <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/514305cc-4a8f-4edf-9746-73752ce396b6" /> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d70a3419-2876-43b9-b7ef-405cc49f6f38" /> 
 <img width="400" height="222" alt="image" src="https://github.com/user-attachments/assets/46a4cf57-2225-43f3-b101-aa2fe9a3826d" />
  <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/888a2715-09f2-4567-b0f6-f515163bd8b2" /> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/42b2e5b5-1bd4-443d-a7e3-98d8a1c13bd7" />
@@ -46,7 +46,8 @@
 “Love is so short, forgetting is so long." —Pablo Neruda <img width="200" height="163" alt="image" src="https://github.com/user-attachments/assets/4de6621e-6e80-4827-a772-65f799433918" /> "There really is no point getting your hopes up trying to chase and get someone back when they're already long gone, mate."
 
 
-
+<img width="220" height="307" alt="image" src="https://github.com/user-attachments/assets/474ade5e-17d2-4041-bdb1-68f362120933" /> 
+<img width="220" height="307" alt="image" src="https://github.com/user-attachments/assets/fb85e103-ea23-4aae-b1a4-2a2f1075ac54" />
 
 
 
