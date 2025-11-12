@@ -47,8 +47,7 @@
 
 
 <img width="220" height="307" alt="image" src="https://github.com/user-attachments/assets/474ade5e-17d2-4041-bdb1-68f362120933" /> 
-<img width="220" height="307" alt="image" src="https://github.com/user-attachments/assets/fb85e103-ea23-4aae-b1a4-2a2f1075ac54" />
-
+<img width="220" height="307" alt="image" src="https://github.com/user-attachments/assets/fb85e103-ea23-4aae-b1a4-2a2f1075ac54" /> jake english so tuff
 
 
 
